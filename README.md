@@ -1,0 +1,2 @@
+# ABOUT MY SCHOOL
+ 
